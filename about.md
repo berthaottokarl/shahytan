@@ -1,3 +1,3 @@
 # Shahytan
 
-A frankensteinian being created in a chemical attack on the Zagros mountains in Kurdistan during the 1990's Anfal campaign hit Shahriman's subterranean and killed a little girl in the mountain village of Sergellu at the same time. In the ensuing chaos emerged **Shahytan**, hellbent on revenge against those who destroyed her village and subterranean kingdom.
+A frankensteinian being created in a chemical attack on the Zagros mountains in Kurdistan. During the 1990's Anfal campaign, bombs spreading neurotoxic gasses, hit Shahraman's subterranean kingdom and killed a little girl in the mountain village of Sergellu at the same time. In the ensuing chaos of debris, death and released souls emerged **Shahytan**, hellbent on revenge against those who destroyed her village and dynasty. Will she be able to stop, when she finally eradicates the perpetrators?
